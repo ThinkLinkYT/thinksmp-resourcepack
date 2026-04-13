@@ -1,0 +1,1 @@
+# thinksmp-resourcepack
